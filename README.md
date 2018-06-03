@@ -8,7 +8,6 @@ Youde idea: Youde creates a good life
 We are the pioneer of the new era, we are the pioneers, the second, the times, the times, the times, the innovation we are the builders of the new era.
 
 
-![Alt text](https://github.com/w1268lz/Pocket-platform-Account/blob/master/4.jpg)
 
 
 
